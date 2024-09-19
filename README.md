@@ -1,0 +1,1 @@
+## Lembrete: trocar o "______"diretório das imagens.
